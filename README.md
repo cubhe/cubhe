@@ -26,4 +26,4 @@ I became fascinated with **light fields 💡**, **inverse problems 🔄**, and h
 ---
 
 ### 📫 Get in touch  
-Feel free to reach out via [email](mailto:your-email@example.com) or check out my pinned projects below ⬇️
+Feel free to reach out via [email](cubhe@ucdavis.edu) or check out my pinned projects below ⬇️
